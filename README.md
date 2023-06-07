@@ -1,5 +1,6 @@
 # 💫 About Me:
-I’m a Student 🍙. I love to code💕 and i work individually.<br>
+I’m a Student 🍙. I love to code💕 and i work individually.磻 I have learned many coding Languagesand you can dm me on discord too
+Messed !#0011<br>
 
 
 # 💻 Tech Stack:
